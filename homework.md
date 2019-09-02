@@ -9,4 +9,4 @@
 ![alt text](https://cdn-assets.alltrails.com/uploads/photo/image/23248040/extra_large_cd1fb8d9c29c5206a39fbaaa2b228f6c.jpg "Great River Bluffs State Park")
 
 3. [Sugar Loaf](https://www.tripadvisor.com/Attraction_Review-g43648-d124532-Reviews-Sugar_Loaf-Winona_Minnesota.html)
-
+![alt text](https://ghosty-production.s3.amazonaws.com/fotospot_spots/Sugar-Loaf-Rock-Fotospot_742a74fd1fae84ffdae577fb8f55af5a/large.jpg "Sugar Loaf")
