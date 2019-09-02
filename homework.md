@@ -1,3 +1,3 @@
-# Winona **asterisks**
+# **Winona**
 
 ## Sites to see
