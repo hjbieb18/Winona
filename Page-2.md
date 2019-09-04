@@ -1,2 +1,2 @@
-###### Natural Sites from Winona
+##### Natural Sites of Winona
 ### Personal Review 
