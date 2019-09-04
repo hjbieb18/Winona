@@ -6,6 +6,8 @@
 
 ##### 1. Lake Park
 
-        In my own personal opinion, Lake Park is a place I would reccomend for college students. Although, during the winter it is not ideal. Lake Park is known for its beach and has a decent trail to either rollerblade, take an evening stroll, or walk your dog.
+        In my own personal opinion, Lake Park is a place I would reccomend for college students. Although,
+        during the winter it is not ideal. Lake Park is known for its beach and has a decent trail to
+        either rollerblade, take an evening stroll, or walk your dog.
 
 
