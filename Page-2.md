@@ -13,7 +13,7 @@
         Lake Park is frisbee.
         
   
-<a href="https://www.youtube.com/watch?v=Kb1ptdColdY "Goin' To The Lake"><img src="https://www.youtube.com/watch?v=Kb1ptdColdY.jpg" alt="Goin' To The Lake: Lake View Drive Inn" width="240" height="180" border="10" /></a>
+<img src="https://www.youtube.com/watch?v=Kb1ptdColdY.jpg" alt="Goin' To The Lake: Lake View Drive Inn" width="240" height="180" border="10" /></a>
 
         
          
