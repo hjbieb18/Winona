@@ -16,11 +16,21 @@
 ##### 2. Great River Bluffs State Park 
         
         I have been to this side of the Winona Bluffs once. Here I was able to along the trail of the Great River
-        Bluffs, at this time last year it was pretty breathe taking. When I visited,it was flooding/mud season.
-        The vantage point gave you true perspective of what was taking place. It was something to experience and
-        something to do in Winona, worth while.
+        Bluffs, at this time last year it was pretty breathe taking. When I visited,it was flooding/mud
+        season.The vantage point gave you true perspective of what was taking place. It was something
+        to experience and something to do in Winona, worth while.
 <img src="https://www.youtube.com/watch?v=JZmudpkOJLM.jpg" alt="Great River Bluffs State Park" width="240" 
 height="180" border="10" /></a>
+
+##### 3. Sugar Loaf
+        
+        
+        This is probobly the most iconic site to see in Winona and is suggested by anyone who's seen the
+        "Rock". I reccomend this site strictly because of this reason. In comparison to the Great River
+        Bluffs State Park, the trails are not to extreme. But, it too, has a great vantage point of Winona.
+        I really like this trail and suggest it to first-timers of Winona, mostly because it is closer to
+        the main drag.
+        
         
      
         
