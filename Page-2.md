@@ -35,7 +35,7 @@
 <img src="https://www.youtube.com/watch?v=7Qin0sWDZyo.jpg" alt="Sugar Loaf" width="240"
 height="180" border="10" /></a>
         
-[![The “Great River Bluffs State Park ”](https://www.youtube.com/watch?v=7Qin0sWDZyo)](https://www.youtube.com/watch?v=7Qin0sWDZyo)     
+[![Sugar Loaf Hike Winona, MN](https://www.youtube.com/watch?v=7Qin0sWDZyo)](https://www.youtube.com/watch?v=7Qin0sWDZyo)     
         
         
         
