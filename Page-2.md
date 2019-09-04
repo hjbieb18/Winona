@@ -21,10 +21,8 @@
         Bluffs, at this time last year it was pretty breathe taking. When I visited,it was flooding/mud
         season.The vantage point gave you true perspective of what was taking place. It was something
         to experience and something to do in Winona, worth while.
-<img src="https://www.youtube.com/watch?v=JZmudpkOJLM.jpg" alt="Great River Bluffs State Park" width="240" 
-height="180" border="10" /></a>
 
-[![Goin' To The Lake: Lake View Drive Inn](https://www.youtube.com/watch?v=JZmudpkOJLM)](https://www.youtube.com/watch?v=JZmudpkOJLM)
+[![The “Great River Bluffs State Park ”](https://www.youtube.com/watch?v=JZmudpkOJLM)](https://www.youtube.com/watch?v=JZmudpkOJLM)
 
 ##### 3. Sugar Loaf
         
@@ -37,7 +35,7 @@ height="180" border="10" /></a>
 <img src="https://www.youtube.com/watch?v=7Qin0sWDZyo.jpg" alt="Sugar Loaf" width="240"
 height="180" border="10" /></a>
         
-     
+[![The “Great River Bluffs State Park ”](https://www.youtube.com/watch?v=7Qin0sWDZyo)](https://www.youtube.com/watch?v=7Qin0sWDZyo)     
         
         
         
