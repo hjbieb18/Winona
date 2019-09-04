@@ -14,9 +14,9 @@ Lake Park | Great River Bluffs State Park | Sugar Loaf
   `Lake Park Dr Winona, MN 55987`| `43605 Kipp Dr, Winona, MN 55987` | `752 Glen Ln, Winona, MN 55987`
   
   
-Hours| Hours | Hours  
+## Hours of Operation  
 --- | --- | ---
-****| `renders` | **Sugar Loaf**
-1 | 2 | *open 24 hours*
+*Lake Park*| *Great River Bluffs State Park* | *Sugar Loaf*
+*open 24 hours* | *8 a.m.-10 p.m.* | *open 24 hours*
 
 
