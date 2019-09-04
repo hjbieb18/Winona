@@ -13,6 +13,9 @@
         Lake Park is frisbee.
 <img src="https://www.youtube.com/watch?v=Kb1ptdColdY.jpg" alt="Goin' To The Lake: Lake View Drive Inn" width="240" height="180" border="10" /></a>
 
+[![Lake Park](https://www.youtube.com/watch?v=Kb1ptdColdY)](https://www.youtube.com/watch?v=Kb1ptdColdY)
+
+
 ##### 2. Great River Bluffs State Park 
         
         I have been to this side of the Winona Bluffs once. Here I was able to along the trail of the Great River
