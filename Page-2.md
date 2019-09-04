@@ -30,7 +30,8 @@ height="180" border="10" /></a>
         Bluffs State Park, the trails are not to extreme. But, it too, has a great vantage point of Winona.
         I really like this trail and suggest it to first-timers of Winona, mostly because it is closer to
         the main drag.
-        
+<img src="https://www.youtube.com/watch?v=7Qin0sWDZyo.jpg" alt="Sugar Loaf" width="240"
+height="180" border="10" /></a>
         
      
         
