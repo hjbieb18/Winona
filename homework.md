@@ -11,6 +11,6 @@
 3. [Sugar Loaf](https://www.tripadvisor.com/Attraction_Review-g43648-d124532-Reviews-Sugar_Loaf-Winona_Minnesota.html)
 ![alt text](https://ghosty-production.s3.amazonaws.com/fotospot_spots/Sugar-Loaf-Rock-Fotospot_742a74fd1fae84ffdae577fb8f55af5a/large.jpg "Sugar Loaf")
 
-[Page 2](homework.md)
+[Page 2](https://github.com/hjbieb18/Winona-Page2.md.git)
 
 
