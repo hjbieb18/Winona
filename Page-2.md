@@ -31,11 +31,11 @@
 ##### 3. Sugar Loaf
         
         
-        This is probobly the most iconic site to see in Winona and is suggested by anyone who's seen the
-        "Rock". I reccomend this site strictly because of this reason. In comparison to the Great River
-        Bluffs State Park, the trails are not to extreme. But, it too, has a great vantage point of Winona.
-        I really like this trail and suggest it to first-timers of Winona, mostly because it is closer to
-        the main drag.
+        This is probobly the most *iconic site* to see in **Winona** and is highly suggested by anyone who's 
+        seen the **"Rock"**. I reccomend this site *strictly* because of this reason. In comparison to the 
+        **Great River Bluffs State Park**, it's trails are not to extreme. But, it too, people can **rock 
+        climb** up where it has a great *vantage* point of **Winona**. I really like this trail and suggest  
+        it to first-timers of **Winona**, mostly because it is closer to the main drag.
         
 [![Sugar Loaf Hike Winona, MN](https://www.youtube.com/watch?v=7Qin0sWDZyo)](https://www.youtube.com/watch?v=7Qin0sWDZyo)     
         
