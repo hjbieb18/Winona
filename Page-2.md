@@ -24,7 +24,7 @@
         
 [![Sugar Loaf Hike Winona, MN](https://www.youtube.com/watch?v=7Qin0sWDZyo)](https://www.youtube.com/watch?v=7Qin0sWDZyo)     
                
- [Page 3](Page-3.md)
+                                                                                                  [Page 3](Page-3.md)
        
       
         
